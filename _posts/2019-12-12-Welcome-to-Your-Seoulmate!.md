@@ -9,11 +9,11 @@ image:
 categories:
   - 마케팅
 tags:
-  - Seoul
+  - Seoultour
+  - Koreatour
   - localplace
-  - Munraedong
   - localrestaurant
-  - artistvillage
+  - localexperience
 description: Are you planning to tour Seoul? I know you’re going to visit Gyeongbokgung, Seoul N-tower, Insa-dong. Don't you want your travelling to become a special one? Don’t you want to experience the unique things that your friends haven’t experienced?
 ---
 
