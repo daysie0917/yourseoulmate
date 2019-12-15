@@ -33,9 +33,9 @@ Munrae-dong is one of the hottest neighborhood in Seoul for young local. Munrae-
 
 ![Munrae-dong](/img1/02/m5.jpg)
 
+ 
 
-
-## ### Yankeetongdak & Second Floor 
+### Yankeetongdak & Second Floor
 
 If you eat unique chicken you’ve never tasted, Go to ‘Yankeetongdak’! The signiture menu is ‘Spinach chicken’, which works well with spinach or chicken. With beer, it is really really fantastic! I thought eating chicken, common food, with spanich is so unique and quirky. And this restaurant has a interior with old wooden furniture and trendy props and lighting. So that the interior is nice and instagramable. The picture was taken on the open-air terrace when I visit last summer. I enjoyed feeling a cool breeze and looking down the unique street of Munrae-dong. If you taste the new local dish you’ve not heard of, you should go ‘Yankeetongdak’! 
 
