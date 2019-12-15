@@ -31,8 +31,6 @@ Hello! My name is Suhyun! I’m a native Seoulite. On traveling, I like to trave
 
 
 
-![your Seoulmate](/img1/01/post/your1.jpg)
-
 
 
 
