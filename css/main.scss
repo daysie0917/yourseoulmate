@@ -1,6 +1,9 @@
 ---
 # Front matter comment to ensure Jekyll properly reads file.
 ---
+boby{
+  font-family: 'Open Sans Condensed', sans-serif;
+}
 
 //Import
 @import "base", "mixin", "typography", "layout", "syntax.scss", "custom.scss";
