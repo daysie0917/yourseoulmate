@@ -45,11 +45,13 @@ If you eat unique chicken you’ve never tasted, Go to ‘Yankeetongdak’! The 
 
 ![Munrae-dong](/img1/02/m14.jpg)
 
-** 주소 ** 13, Dorim-ro 139-gil, Yeongdeungpo-gu, Seoul
-
--- 주소 -- 
 
 
+**Address** 13, Dorim-ro 139-gil, Yeongdeungpo-gu, Seoul
+
+**Phone** : 070-8800-0815
+
+**Business Hour** Sun -Tur : 18:00 - 24:00 / Fri - Sat : 16:00 - 1:00
 
 
 
