@@ -25,8 +25,6 @@ Munrae-dong is one of the hottest neighborhood in Seoul for young local. Munrae-
 
 ![Munrae-dong](/img1/02/m12.jpg)
 
-![Munrae-dong](/img1/02/m9.jpg)
-
 ![Munrae-dong](/img1/02/m7.jpg)
 
 ![Munrae-dong](/img1/02/m6.jpg)
@@ -37,15 +35,17 @@ Munrae-dong is one of the hottest neighborhood in Seoul for young local. Munrae-
 
 ### Yankeetongdak & Second Floor
 
-If you eat unique chicken you’ve never tasted, Go to ‘Yankeetongdak’! The signiture menu is ‘Spinach chicken’, which works well with spinach or chicken. With beer, it is really really fantastic! I thought eating chicken, common food, with spanich is so unique and quirky. And this restaurant has a interior with old wooden furniture and trendy props and lighting. So that the interior is nice and instagramable. The picture was taken on the open-air terrace when I visit last summer. I enjoyed feeling a cool breeze and looking down the unique street of Munrae-dong. If you taste the new local dish you’ve not heard of, you should go ‘Yankeetongdak’! 
-
 ![Munrae-dong](/img1/02/m1.jpg)
 
 ![Munrae-dong](/img1/02/m2.jpg)
 
 ![Munrae-dong](/img1/02/m14.jpg)
 
+ If you taste the new local dish you’ve not heard of, you should go ‘Yankeetongdak’!  The signiture menu is ‘Spinach chicken’, which works well with spinach or chicken. With beer, it is really really fantastic! I thought eating chicken, common food, with spanich is so unique. And this restaurant has a interior with old wooden furniture and trendy props and lighting. So that the interior is nice and instagramable. The pictures were taken on the open-air terrace when I visit last summer. I enjoyed feeling a cool breeze and looking down the unique street of Munrae-dong. I want you to experience new taste and new atmosphere at Munrea-dong.
 
+
+
+**Tips** You might wait for a long time before you go in on weekend, so I recommand you go to on weekdays.
 
 **Address** 13, Dorim-ro 139-gil, Yeongdeungpo-gu, Seoul
 
