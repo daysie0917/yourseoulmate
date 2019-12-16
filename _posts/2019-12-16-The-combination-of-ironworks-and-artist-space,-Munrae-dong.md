@@ -35,9 +35,9 @@ At every alley, There are some restaurants, coffee shops, bars which have lots o
 
 Some artists whose workspace is in Munrae painted a mural so that the normal buildings became individual ones.
 
-***Tips***  &nbsp Munrae-dong is close to Hongdae (it takes 20 minutes by car), so you'd better go to both areas a day. For example, you can spend your leisure time in Munrae-dong by day and have a exciting time at clubs in Hongdae by night.
+***Tips***  &nbsp; Munrae-dong is close to Hongdae (it takes 20 minutes by car), so you'd better go to both areas a day. For example, you can spend your leisure time in Munrae-dong by day and have a exciting time at clubs in Hongdae by night.
 
-***Way to go*** &nbsp 2 minutes walk from Exit 7 of Munrae Station (Subway line 2)
+***Way to go*** &nbsp; 2 minutes walk from Exit 7 of Munrae Station (Subway line 2)
 
 <br />
 
@@ -58,9 +58,9 @@ Some artists whose workspace is in Munrae painted a mural so that the normal bui
 
 ![Munrae-dong](/img1/02/m14.jpg)
 
-***Tips***  &nbsp You might wait for a long time before you go in on weekend, so I recommand you go to on weekdays.
+***Tips***  &nbsp; You might wait for a long time before you go in on weekend, so I recommand you go to on weekdays.
 
 
-***Address*** &nbsp 13, Dorim-ro 139-gil, Yeongdeungpo-gu, Seoul  &nbsp ***Phone*** &nbsp 070-8800-0815
+***Address*** &nbsp; 13, Dorim-ro 139-gil, Yeongdeungpo-gu, Seoul  &nbsp; ***Phone*** &nbsp; 070-8800-0815
 
-***Business Hour*** &nbsp Sun -Tur : 18:00 - 24:00 / Fri - Sat : 16:00 - 1:00
+***Business Hour*** &nbsp; Sun -Tur : 18:00 - 24:00 / Fri - Sat : 16:00 - 1:00
