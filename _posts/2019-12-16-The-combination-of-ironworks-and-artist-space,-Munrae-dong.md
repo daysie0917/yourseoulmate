@@ -17,7 +17,7 @@ tags:
 description: Munrae-dong is one of the hottest neighborhood in Seoul for young local. Munrae-dong was a representative metal industry in Seoul. But over time, the ironworks went out of business and people stopped coming to the area.
 ---
 
-### The hottest neighborhood in Seoul, Munrae-dong
+### The hottest neighborhood in Seoul for young local
 
 Munrae-dong is one of the hottest neighborhood in Seoul for young local. Munrae-dong was a representative metal industry in Seoul. But over time, the ironworks went out of business and people stopped coming to the area. The government started Munrae-art-factory for support for young artists, and the artists started their workrooms in empty places in the area. The area became called ‘Munrae Creative village’. As remaining ironworks and artist village harmonize together, Munrae-dong has quaint atmosphere. Many young people are charmed by the atmosphere where there is the juxtapoisition of old and new, past and present. I also periodically visit Munrae-dong. At the last part of posting, I’ll let you know my favorite place in Munrae-dong.
 
