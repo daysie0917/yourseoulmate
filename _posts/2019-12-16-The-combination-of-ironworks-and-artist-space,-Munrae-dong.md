@@ -31,8 +31,8 @@ Munrae-dong is one of the hottest neighborhood in Seoul for young local. Munrae-
 
 ![Munrae-dong](/img1/02/m5.jpg)
 
- 
 
+<hr>
 ### Yankeetongdak & Second Floor
 
  If you taste the new local dish you’ve not heard of, you should go ‘Yankeetongdak’!  The signiture menu is ‘Spinach chicken’, which works well with spinach or chicken. With beer, it is really really fantastic! I thought eating chicken, common food, with spanich is so unique. And this restaurant has a interior with old wooden furniture and trendy props and lighting. So that the interior is nice and instagramable. The pictures were taken on the open-air terrace when I visit last summer. I enjoyed feeling a cool breeze and looking down the unique street of Munrae-dong. I want you to experience new taste and new atmosphere at Munrea-dong.
@@ -50,10 +50,3 @@ Munrae-dong is one of the hottest neighborhood in Seoul for young local. Munrae-
 **Phone** : 070-8800-0815
 
 **Business Hour** Sun -Tur : 18:00 - 24:00 / Fri - Sat : 16:00 - 1:00
-
-
-
-
-
-
-
