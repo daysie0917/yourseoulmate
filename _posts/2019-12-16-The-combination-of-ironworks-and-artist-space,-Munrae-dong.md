@@ -31,7 +31,7 @@ Munrae-dong is one of the hottest neighborhood in Seoul for young local. Munrae-
 
 ![Munrae-dong](/img1/02/m5.jpg)
 
- 
+ <hr />
 
 ### Yankeetongdak & Second Floor
 
@@ -52,10 +52,3 @@ Munrae-dong is one of the hottest neighborhood in Seoul for young local. Munrae-
 **Phone** : 070-8800-0815
 
 **Business Hour** Sun -Tur : 18:00 - 24:00 / Fri - Sat : 16:00 - 1:00
-
-
-
-
-
-
-
