@@ -25,11 +25,15 @@ Munrae-dong is one of the rising hipster hot places in Seoul for young local. Mu
 
 ![Munrae-dong](/img1/02/m12.jpg)
 
+![Munrae-dong](/img1/02/m13.jpg)
+
 ![Munrae-dong](/img1/02/m7.jpg)
 
 At every alley, There are some restaurants, coffee shops, bars which have lots of characteristics. The combination of the dynamic ironworks and the characteristic places makes the area full of unique flavors.
 
 ![Munrae-dong](/img1/02/m6.jpg)
+
+![Munrae-dong](/img1/02/m4.jpg)
 
 ![Munrae-dong](/img1/02/m5.jpg)
 
@@ -44,19 +48,16 @@ Some artists whose workspace is in Munrae painted a mural so that the normal bui
 
 
 <hr>
-
-<br />
-
-### My favorite place - Yankeetongdak & Second Floor
+###  Yankeetongdak & Second Floor
 
 
- If you taste the new local dish you’ve not heard of, you should go to Yankeetongdak!  The signiture menu is ‘Spinach chicken’, which works well with spinach or chicken. With beer, it is really really fantastic! (There are red/white/sparkling wine, single molt whisky, draft beer.) I thought eating chicken, common food, with spinach is so unique. And the restaurant is a three-story building where an old house is remodeled. The restaurant has a interior with old wooden furniture and trendy props and lightings so that the atmosphere is nice and instagramable. The pictures were taken on the open-air terrace when I visit last summer. I enjoyed feeling a cool breeze and looking down the unique street of Munrae-dong. It was such a wonderful time. I hope you experience new local dishes and new local cultures!
+ If you taste the new local dish you’ve not heard of, you should go to Yankeetongdak!  The signature menu is ‘Spinach chicken’, which works well with spinach or chicken. With beer, it is really really fantastic! (Red/white/sparkling wine, single molt whisky, draft beer are served in the restaurant.) I thought eating chicken, common food, with spinach is so unique. And the restaurant is a three-story building where an old house is remodeled. The restaurant has a interior with old wooden furniture and trendy props and lightings so that the atmosphere is nice and instagramable. The pictures were taken on the open-air terrace when I visit last summer. I enjoyed feeling a cool breeze and looking down the interesting street of Munrae-dong. It was such a wonderful time. I hope you experience new local dishes and new local cultures in Munrae-dong!
 
 ![Munrae-dong](/img1/02/m1.jpg)
 
 ![Munrae-dong](/img1/02/m2.jpg)
 
-![Munrae-dong](/img1/02/m14.jpg)
+![Munrae-dong](/img1/02/m3.jpg)
 
 ***Tips***  &nbsp; You might wait for a long time before you go in on weekend, so I recommend you go to on weekdays.
 
