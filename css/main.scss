@@ -5,6 +5,11 @@
 body {
   font-family: 'Open Sans Condensed', sans-serif; }
 
+.logo_img {
+  width : 600;
+  height: 600;
+}
+
 
 //Import
 @import "base", "mixin", "typography", "layout", "syntax.scss", "custom.scss";
