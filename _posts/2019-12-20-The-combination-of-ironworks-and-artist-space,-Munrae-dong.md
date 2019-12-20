@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The combination of ironworks and artist space, Munrae-dong
+title: The best place to be comforted by cool breeze, Ttukseom Han River Park
 date: 2019-12-20 11:00:00 +09:00
 author: "Suhyun"
 permalink: /Ttukseom-han-river-park/
@@ -16,8 +16,6 @@ tags:
   - picnicset
 description: The seoul local people often go to han-river for multiple purposes. For example, riding a bycicle, chilling with friends munching chicken and beer, kayaking on rivers, enjoying the river scenery. So the han-river goes into everyday life of seoul local people. 
 ---
-
-# The best place to be comforted by cool breeze, Ttukseom Han River Park
 
 ![Ttukseom](/img1/03/dd3.jpg)
 
