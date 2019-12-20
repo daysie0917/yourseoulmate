@@ -53,6 +53,8 @@ Some artists whose workspace is in Munrae painted a mural so that the normal bui
 
  If you taste the new local dish you’ve not heard of, you should go to Yankeetongdak!  The signature menu is ‘Spinach chicken’, which works well with spinach or chicken. With beer, it is really really fantastic! (Red/white/sparkling wine, single molt whisky, draft beer are served in the restaurant.) I thought eating chicken, common food, with spinach is so unique. And the restaurant is a three-story building where an old house is remodeled. The restaurant has a interior with old wooden furniture and trendy props and lightings so that the atmosphere is nice and instagramable. The pictures were taken on the open-air terrace when I visit last summer. I enjoyed feeling a cool breeze and looking down the interesting street of Munrae-dong. It was such a wonderful time. I hope you experience new local dishes and new local cultures in Munrae-dong!
 
+![Munrae-dong](/img1/02/m111.jpg)
+
 ![Munrae-dong](/img1/02/m1.jpg)
 
 ![Munrae-dong](/img1/02/m2.jpg)
