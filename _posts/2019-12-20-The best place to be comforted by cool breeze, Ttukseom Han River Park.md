@@ -45,9 +45,9 @@ You can ride seoul bike along with river seeing the wonderful view if you pay fo
 
 ![Ttukseom](/img1/03/dd10.jpg)
 
-You can lie on the grass and chill out with your friends in a tent. There are a couple of tent rental shops. Among them, I want to introduce a nice rental shop I also often use, 'The tent'! The tent have 2 sets. One is basic set with a tent and a embossing mat. The other is full set with a tent, a embossing mat, a picknic mat, a mini-table, a wagan, a blanket, and two air pillows. And you can seperately add mini-table, picknic mat, mini-table, wagan, blanket, and air pillow, light speaker, mini-fan if you pay something over.
+You can lie on the grass and chill out with your friends in a tent. There are a couple of tent rental shops. Among them, I want to introduce a nice rental shop I also often use, 'The tent'! The tent have 2 sets. One is basic set with a tent and a embossing mat. The other is full set with a tent, a embossing mat, a picknic mat, a mini-table, a wagan, a blanket, and two air pillows. And you can seperately add mini-table, picknic mat, mini-table, wagan, blanket, and air pillow, light speaker, mini-fan if you pay something over. On rainy days, The tent is closed.
 
-***Point to note*** &nbsp;  On rainy days, The tent is closed.
+***Point to note*** &nbsp; You should pitch a tent in the specified tent zone and open the two door of the tent. And you should strike your tent after 7 p.m. 
 
 ***Tips***&nbsp; I recommand you eat ramen using ramen boiler in a convenience store. Eating it with beer lying in tent is really awesome! 
 
