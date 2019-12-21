@@ -35,9 +35,7 @@ The seoul local people often go to han-river for multiple purposes. For example,
 
 ![Ttukseom](/img1/03/dd5.jpg)
 
-You can ride seoul bike along with river seeing the wonderful view if you pay for only $10.
-
-Seoul bike is an unmanned bike rental system that is easy and convenient to use for anyone regardless of time and place. You can easily borrow a bike as entering given number to the bike device following buying the ticket through computer or mobile web. For more information about how to use seoul bike, click here.  https://www.bikeseoul.com/main.do
+You can ride seoul bike along with river seeing the wonderful view if you pay for only $10. Seoul bike is an unmanned bike rental system that is easy and convenient to use for anyone regardless of time and place. You can easily borrow a bike as entering given number to the bike device following buying the ticket through computer or mobile web. For more information about how to use seoul bike, click here.  [따릉이](https://www.bikeseoul.com/main.do)
 
 ***Tips***&nbsp; You can return the bike to different status where you didn’t borrow so that you can move from one place to another by bike instead of public transportation.
 
@@ -47,7 +45,7 @@ Seoul bike is an unmanned bike rental system that is easy and convenient to use 
 
 ![Ttukseom](/img1/03/dd10.jpg)
 
-You can rent a tent and mat from tent rental shop and lie on the grass. There are a couple of tent rental shops. Among them, I want to introduce a nice rental shop I also often use, The tent! The tent have 2 sets. One is basic set with a tent and a embossing mat. The other is full set with a tent, a embossing mat, a picknic mat, a mini-table, a wagan, a blanket, and two air pillows. And you can seperately add mini-table, picknic mat, mini-table, wagan, blanket, and air pillow, light speaker, mini-fan if you pay something over.
+You can lie on the grass and chill out with your friends in a tent. There are a couple of tent rental shops. Among them, I want to introduce a nice rental shop I also often use, 'The tent'! The tent have 2 sets. One is basic set with a tent and a embossing mat. The other is full set with a tent, a embossing mat, a picknic mat, a mini-table, a wagan, a blanket, and two air pillows. And you can seperately add mini-table, picknic mat, mini-table, wagan, blanket, and air pillow, light speaker, mini-fan if you pay something over.
 
 ***Point to note*** &nbsp;  On rainy days, The tent is closed.
 
@@ -59,7 +57,7 @@ You can rent a tent and mat from tent rental shop and lie on the grass. There ar
 
 ### 3. Rent a picnic set from picnic set rental café - café basique ###
 
-You can rent a picnic set from café basique and enjoy picnic in a quite han-river. There are four type of picnic set. It is nice and instagramable. It is available at the no tent zone so that you can enjoy quite and relaxing picnic. 
+You can enjoy picnic in a quite han-river as renting a picnic set from café basique. There are four type of picnic set. It is very nice and instagramable. It is available at the no tent zone so that you can enjoy quite and relaxing picnic. 
 
 ![Ttukseom](/img1/03/basic.jpg)
 
@@ -77,7 +75,7 @@ The unique set - A type is composed of mat, basket, thermos, cups, two wood chai
 
 The unique set - A type is composed of mat, basket, thermos, cups, two wood chairs, wood table, table mat, fake flowers, some fruits, cutting board, sandwich or toast. It costs 33,000￦ per 2 persons and 36,000￦ per 3 persons.
 
-***Borrow-enabled time*** &nbsp; Weekdays : 14:00-17:00, 15:30-18:30 &nbsp;/&nbsp; Weekends : 12:00-15:00, 15:30-18:30&nbsp; You can adjust a little time.
+***Borrow-enabled time*** &nbsp; Weekdays : 14:00-17:00, 15:30-18:30 &nbsp;/&nbsp; Weekends : 12:00-15:00, 15:30-18:30&nbsp; &nbsp;You can adjust a little time.
 
 ***Phone***&nbsp; 010-4268-0729 &nbsp; / &nbsp; ***Address***&nbsp; &nbsp; 21, Ttukseom-ro 24-gil, Gwangjin-gu, Seoul, Republic of Korea
 
