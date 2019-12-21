@@ -17,7 +17,7 @@ tags:
 description: The seoul local people often go to han-river for multiple purposes. For example, riding a bycicle, chilling with friends munching chicken and beer, kayaking on rivers, enjoying the river scenery. So the han-river goes into everyday life of seoul local people. 
 ---
 
-The seoul local people often go to han-river for multiple purposes. For example, riding a bycicle, chilling with friends munching chicken and beer, kayaking on rivers, enjoying the river scenery. So the han-river goes into everyday life of seoul local people. Even if there are many han-rive parks, I’d like to introduce ttukseom han-river park to you. Because it takes 10 minutes to walk from my house to the park, I go to the park once a week at least. In my case, I usually go to the park when I feel down. I relieve my stress as looking at a expansive view with cool breeze. I have a feeling that the han-river is a great comfort to me. Even though I often go to the ttukseom park and look at the view, I fall in love with the beautiful view of the han-river. I hope you know charm of the han-river. So I will give three tips that you can enjoy the more interesting han-river! 
+The seoul local people often go to han-river for multiple purposes. For example, For riding a bycicle, chilling with friends munching chicken and beer, kayaking on rivers, enjoying the river scenery. So the han-river goes into everyday life of seoul local people. Even if there are many han-rive parks, I’d like to introduce ttukseom han-river park to you. Because it takes 10 minutes to walk from my house to the park, I go to the park once a week at least. In my case, I usually go to the park when I feel down. I relieve my stress as looking at a expansive view with cool breeze. I have a feeling that the han-river is a great comfort to me. Even though I often go to the ttukseom park and look at the view, I fall in love with the beautiful view of the han-river. I hope you know charm of the han-river. So I will give three tips that you can enjoy the more interesting han-river! 
 
 ![Ttukseom](/img1/03/dd3.jpg)
 
@@ -35,7 +35,7 @@ The seoul local people often go to han-river for multiple purposes. For example,
 
 ![Ttukseom](/img1/03/dd5.jpg)
 
-You can ride seoul bike along with river seeing the wonderful view if you pay for only $10. Seoul bike is an unmanned bike rental system that is easy and convenient to use for anyone regardless of time and place. You can easily borrow a bike as entering given number to the bike device following buying the ticket through computer or mobile web. For more information about how to use seoul bike, click here.  [따릉이](https://www.bikeseoul.com/main.do)
+You can ride seoul bike along with river seeing the wonderful view if you pay for only $10. Seoul bike is an unmanned bike rental system that is easy and convenient to use for anyone regardless of time and place. You can easily borrow a bike as entering given number to the bike device following buying the ticket through computer or mobile web. For more information about how to use seoul bike, click here.  [Ttaleungi](https://www.bikeseoul.com/main.do)
 
 ***Tips***&nbsp; You can return the bike to different status where you didn’t borrow so that you can move from one place to another by bike instead of public transportation.
 
