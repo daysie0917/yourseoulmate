@@ -77,9 +77,7 @@ The unique set - A type is composed of mat, basket, thermos, cups, two wood chai
 
 The unique set - A type is composed of mat, basket, thermos, cups, two wood chairs, wood table, table mat, fake flowers, some fruits, cutting board, sandwich or toast. It costs 33,000￦ per 2 persons and 36,000￦ per 3 persons.
 
-
+***Borrow-enabled time*** &nbsp; Weekdays : 14:00-17:00, 15:30-18:30 &nbsp;/&nbsp; Weekends : 12:00-15:00, 15:30-18:30&nbsp; You can adjust a little time.
 
 ***Phone***&nbsp; 010-4268-0729 &nbsp; / &nbsp; ***Address***&nbsp; &nbsp; 21, Ttukseom-ro 24-gil, Gwangjin-gu, Seoul, Republic of Korea
-
-
 
