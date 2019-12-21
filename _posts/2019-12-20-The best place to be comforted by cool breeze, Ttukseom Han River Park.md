@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The combination of ironworks and artist space, Munrae-dong
+title: The best place to be comforted by cool breeze, Ttukseom Han River Park
 date: 2019-12-20 11:00:00 +09:00
 author: "Suhyun"
 permalink: /Ttukseom-han-river-park/
@@ -17,7 +17,7 @@ tags:
 description: The seoul local people often go to han-river for multiple purposes. For example, riding a bycicle, chilling with friends munching chicken and beer, kayaking on rivers, enjoying the river scenery. So the han-river goes into everyday life of seoul local people. 
 ---
 
-# The best place to be comforted by cool breeze, Ttukseom Han River Park
+The seoul local people often go to han-river for multiple purposes. For example, riding a bycicle, chilling with friends munching chicken and beer, kayaking on rivers, enjoying the river scenery. So the han-river goes into everyday life of seoul local people. Even if there are many han-rive parks, I’d like to introduce ttukseom han-river park to you. Because it takes 10 minutes to walk from my house to the park, I go to the park once a week at least. In my case, I usually go to the park when I feel down. I relieve my stress as looking at a expansive view with cool breeze. I have a feeling that the han-river is a great comfort to me. Even though I often go to the ttukseom park and look at the view, I fall in love with the beautiful view of the han-river. I hope you know charm of the han river. So I will give three tips that you can enjoy the more interesting han-river! 
 
 ![Ttukseom](/img1/03/dd3.jpg)
 
@@ -25,9 +25,7 @@ description: The seoul local people often go to han-river for multiple purposes.
 
 ![Ttukseom](/img1/03/dd9.jpg)
 
-The seoul local people often go to han-river for multiple purposes. For example, riding a bycicle, chilling with friends munching chicken and beer, kayaking on rivers, enjoying the river scenery. So the han-river goes into everyday life of seoul local people. Even if there are many han-rive parks, I’d like to introduce ttukseom han-river park to you. Because it takes 10 minutes to walk from my house to the park, I go to the park once a week at least. In my case, I usually go to the park when I feel down. I relieve my stress as looking at a expansive view with cool breeze. I have a feeling that the han-river is a great comfort to me. Even though I often go to the ttukseom park and look at the view, I fall in love with the beautiful view of the han-river. I hope you know charm of the han river. So I will give three tips that you can enjoy the more interesting han-river! 
-
-*** Way to go *** &nbsp; Exit 3 of Ttukseom park station (Subway line 7)
+***Way to go*** &nbsp; Exit 3 of Ttukseom park station (Subway line 7)
 
 <br />
 
@@ -59,7 +57,7 @@ You can rent a tent and mat from tent rental shop and lie on the grass. There ar
 
 <br />
 
-### 3. Rent a picnic set from picnicset rental café - café basique ###
+### 3. Rent a picnic set from picnic set rental café - café basique ###
 
 You can rent a picnic set from café basique and enjoy picnic in a quite han-river. There are four type of picnic set. It is nice and instagramable. It is available at the no tent zone so that you can enjoy quite and relaxing picnic. 
 
@@ -72,6 +70,12 @@ The basic set is composed of mat, basket, thermos, cups, picnic table, table mat
 The basique set is composed of mat, basket, thermos, cups, picnic table, table mat, fake flowers, some fruits, cutting board, sandwich or toast. It costs 26,000￦ per 2 persons and 29,000￦ per 3 persons.
 
 ![Ttukseom](/img1/03/unia.jpg)
+
+The unique set - A type is composed of mat, basket, thermos, cups, two wood chairs, wood stool, table mat, fake flowers, some fruits, cutting board, sandwich or toast. It costs 33,000￦ per 2 persons and 36,000￦ per 3 persons.
+
+![Ttukseom](/img1/03/unib.jpg)
+
+The unique set - A type is composed of mat, basket, thermos, cups, two wood chairs, wood table, table mat, fake flowers, some fruits, cutting board, sandwich or toast. It costs 33,000￦ per 2 persons and 36,000￦ per 3 persons.
 
 
 
