@@ -5,7 +5,7 @@ date: 2019-12-20 11:00:00 +09:00
 author: "Suhyun"
 permalink: /Ttukseom-han-river-park/
 image:
-  feature: dd7.jpg
+  feature: dd1.jpg
 categories:
   - 마케팅
 tags:
