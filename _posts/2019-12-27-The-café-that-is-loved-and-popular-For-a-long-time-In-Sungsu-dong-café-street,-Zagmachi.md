@@ -27,15 +27,17 @@ Sungsu-dong café street has been the hot place in Seoul 5 years ago. Sungsu-don
 
 ![Zagmachi](/img1/04/z1.jpg)
 
-![Zagmachi](/img1/04/z2.jpg)
-
 ![Zagmachi](/img1/04/z5.jpg)
 
 The outside of the Zagmachi is so simple. The inside is quite big and there is a couple of big tables and lots of small table. The vintage props and furnitures make the atmosphere cozy and warm. And a movie was projected on one side of the wall so that interior is nice and instagramable. 
 
+<br />
+
 ![Zagmachi](/img1/04/z4.jpg)
 
 On one side, Many Magazine B that choose one brand and introduce the brand are put on the bookself. (Magazine B is famous to local hipster.) Zagmachi is also posted in ‘Magazine B : Seoul’. 
+
+<br />
 
 ![Zagmachi](/img1/04/z7.jpg)
 
