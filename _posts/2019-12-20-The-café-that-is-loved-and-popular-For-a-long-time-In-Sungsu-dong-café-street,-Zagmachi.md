@@ -1,9 +1,9 @@
 ---
 layout: post
 title:The café that is loved and popular For a long time In Sungsu-dong café street, Zagmachi
-date: 2019-12-20 11:00:00 +09:00
+date: 2019-12-27 11:00:00 +09:00
 author: "Suhyun"
-permalink: /Ttukseom-han-river-park/
+permalink: /Sungsu-dong-zagmachi/
 image:
   feature: z2.jpg
 categories:
