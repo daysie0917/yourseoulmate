@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The brunch café with healthy foods and warm sun, Underyard
+title: The brunch café with healthy foods and warm sunlight, Underyard
 date: 2020-01-05 20:00:00 +09:00
 author: "Suhyun"
 permalink: /Hannam-dong-Underyard/
@@ -20,8 +20,6 @@ description: Hannam-dong is a neighborhood next to Iteawon, which has quite and 
 Hannam-dong is a neighborhood next to Iteawon, which has quite and relaxed atmosphere. There are a lot of cafés and pubs with unique concepts. For you who want to eat lightly due to overeating on your trip, I’ll let you know a nice brunch café, Underyard! Underyard is one of the famous brunch cafés. it provides healthy brunch that is made of fresh ingredient and it is reasonably priced. 
 
 <br />
-
-![Underyard](/img1/05/u11.jpg)
 
 ![Underyard](/img1/05/u4.jpg)
 
@@ -52,6 +50,8 @@ There are various kinds of brunch and coffee, tea, wine, beer. The most popular 
 The ricotta tomato green sandwich is a kind of open sandwich that ricotta cheese, cherry tomato pickled in honey, pesto, wild arugula and prosciutto are put on rye bread. It tastes so healthy and good. Each ingredients of the sandwich give off their own flavor and is harmonized well. And the shakshuka is a kind of tomato soup that consists of tomato sauce, eggs and cheese. It is very delicious and substantial meal if you dip slices of rye bread in shakshuka. you can add some slices of rye bread if you pay for only 2 dollars. The shakshuka has dishes for 1 person and for 2-3 persons. The dish for 1 person is not enough for 2 persons but I recommand ordering it to taste several menus. The shakshuka goes well with fresh open sandwich so that I recommand eating shakshuka with open sandwiches. 
 
 <br />
+
+***Tips*** &nbsp; The underyard is close to Itewon. I hope you enjoy relaxing and spending time in underyard in the daytime. At night, you enjoy nightlife in Itewon, for the fun, for the drink. 
 
 ***Way to go*** &nbsp; Exit 3 of Hangangjin station (Subway line 6)
 
