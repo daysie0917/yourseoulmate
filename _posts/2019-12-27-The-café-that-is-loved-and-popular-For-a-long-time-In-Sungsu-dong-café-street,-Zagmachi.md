@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The café that is loved and popular for a long time in Sungsu-dong café street, Zagmachi
+title: The café that is loved for a long time in Sungsu-dong café street, Zagmachi
 date: 2019-12-27 11:00:00 +09:00
 author: "Suhyun"
 permalink: /Sungsu-dong-zagmachi/
