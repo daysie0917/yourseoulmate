@@ -23,15 +23,8 @@ Are you planning to tour Seoul? I know you’re going to visit Gyeongbokgung, Se
 
 ‘Your Seoulmate’ contains the awesome local places and experiences in Seoul that you cannot search from anywhere. That’s because I explored to the places and found out hidden spots for myself. Even the town you’ve heard of, I’ll show completely different places and experiences in the town that are more of a daily life of authentic locals. You can get information categorized by shopping, having fun, munching and chilling in Seoul so that you can make your special trip by being a local!
 
- 
+
 
 ### About author, Suhyun
 
-Hello! My name is Suhyun! I’m a native Seoulite. On traveling, I like to travel without a plan. I like to ask a local local places and enjoy roaming the places slowly. When I traveled to Jeju-island, I asked the guest house host 'A beach where there is no one but fantastic’. The beach was totally deserted but more beautiful than other beaches that are famous in the instagram. Also, He let me know the local restaurant where there is not a signboard, markets the locals go every day. It is the best trip i have traveled ever and remain in my memory as traveling not for tourist destinations but only for me. I hope you feel the awesome feeling I had on that day in Jeju-island. I will be your seoulmate! 
-
-
-
-
-
-
-
+Hello! My name is Suhyun! I’m a native Seoulite. On traveling, I like to travel without a plan. I like to ask a local local places and enjoy roaming the places slowly. When I traveled to Jeju-island, I asked the guest house host 'A beach where there is no one but fantastic’. The beach was totally deserted but more beautiful than other beaches that are famous in the instagram. Also, He let me know the local restaurant where there is not a signboard, markets the locals go every day. It is the best trip i have traveled ever and remain in my memory as traveling not for tourist destinations but only for me. I hope you feel the awesome feeling I had on that day in Jeju-island. I will be your seoulmate!
